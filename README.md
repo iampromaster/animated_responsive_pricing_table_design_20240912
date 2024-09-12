@@ -1,0 +1,1 @@
+https://iampromaster.github.io/animated_responsive_pricing_table_design_20240912/
